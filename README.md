@@ -1,6 +1,6 @@
 ★ Hey there, I'm ayush 👋
 
-[i am learning now]
+[i am learning now.so if you can plz help me teach me give me sugetions]
 
 Welcome to my GitHub profile!
 
