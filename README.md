@@ -1,5 +1,5 @@
 ★ Hey there, I'm ayush 👋
-
+[i am learning now]
 Welcome to my GitHub profile!
 
 ★ About Me★
